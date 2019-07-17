@@ -1,0 +1,2 @@
+# Lastwarriorstore
+https://lastwarriorcup.store
